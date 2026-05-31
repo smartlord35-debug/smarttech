@@ -1,3 +1,3 @@
 # smarttech
-want to make money 
+want to make money .
 susceptible 
