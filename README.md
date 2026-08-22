@@ -1,3 +1,3 @@
 # smarttech
-want to make money .
+edited readme
 susceptible 
